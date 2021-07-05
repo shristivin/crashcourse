@@ -1,4 +1,4 @@
 # TRIAL
 
 
-SHRISTI GUPTA
+Shristi Gupta
